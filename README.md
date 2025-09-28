@@ -1,1 +1,1 @@
-This Sir O-Gbatt initiual website.
+This Sir O-Gbatt initial website.
